@@ -23,7 +23,7 @@ Tasbeeh is used in many places instead of prayer and the ultimate form of tasbee
 
 ---
 
-People foften fail to recognize the name العزيز الحكيم
+People often fail to recognize the name العزيز الحكيم
 
 Some people refuse to recognize the authority, others question the wisdom behind the authority and ask why did allah order such and such and I don't see the point.
 
